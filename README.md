@@ -18,7 +18,7 @@
   <img width="640" height="213" src="https://i.postimg.cc/FsQsqTpr/New-Project-4.png">
 </p>
 
-<p align="center">hawks　ₒᵣ　keigo　　(* ^ ω ^)　　17ᵧₒ　　african american</p>
+<p align="center">keigo　ₒᵣ　lex　　(* ^ ω ^)　　17ᵧₒ bodily　　african american</p>
 <p align="center">audhd　　co-host　　mentally disabled　　⁺</p>
 <p align="center">w2i (i get distracted easily)　　c+h freely unlesss stated otherwise</p>
 
